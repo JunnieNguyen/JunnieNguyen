@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JunnieNguyen
+- 👀 I’m interested in seeking coders
+- 📫 How to reach me: Skype: dungphuongdh, Telegram: JunnieNguyen
